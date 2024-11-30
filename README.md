@@ -7,7 +7,7 @@
 
 -  I am currently learning **Data Science from Youtube and Great Learning app**
 
--  How to reach me **sanketpoetry@gmail.com**
+-  How to reach me **sankudeoghar@gmail.com**
 
 - Fun fact **I think I am a serious guy**
 
